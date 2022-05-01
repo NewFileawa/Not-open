@@ -1,2 +1,2 @@
-# Not-open
-别打开
+I telled you,fuck you
+我告诉过你了，超你妈
